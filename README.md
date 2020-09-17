@@ -1,2 +1,2 @@
 # ceoanthonyvu.github.io
-Portfolio
+Welcome! Hope you have fun looking through my portfolio!
